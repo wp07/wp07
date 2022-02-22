@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @wp07
-- 👀 I’m interested in cardiovascular outcomes research
+- 👀 I’m a Cardiothoracic surgery resident at the University of Pennsylvania
 
 
 <!---
